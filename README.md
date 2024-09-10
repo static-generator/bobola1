@@ -1,4 +1,4 @@
 # Bobola
 ## Mikylla Sabrina R. Agnabo
 ### CN 1
-![](https://p1.hiclipart.com/preview/957/201/100/vintage-black-and-teal-crosley-vinyl-player.jpg)
+![](https://img.freepik.com/premium-photo/record-player-transparent-background-ai_894067-12083.jpg)
