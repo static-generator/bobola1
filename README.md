@@ -1,5 +1,4 @@
 # Bobola
 ## Mikylla Sabrina R. Agnabo
 ### CN 1
-![](https://www.slashfilm.com/img/gallery/hbo-max-made-a-calcifer-yule-log-proving-that-the-best-blaze-indeed-burns-brightest-when-circumstances-are-at-their-worst/intro-1640226868.jpg
-)
+![](https://p1.hiclipart.com/preview/957/201/100/vintage-black-and-teal-crosley-vinyl-player.jpg)
